@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with automatic Scripts for sol's rng, the #1 Script. Includes auto-sell and auto-collect for unbeatable
 
 
 
